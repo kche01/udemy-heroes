@@ -1,0 +1,4 @@
+#flash
+asdkasldkalskdñasdkñalskdñaskdñalskdñalsdkñaldkañlsdañlsd
+asdkalñskdñaskdñalskdñlaksñdlaskdñlakdñasl
+asdlaksdñlaksñdlakñsdkasñld
